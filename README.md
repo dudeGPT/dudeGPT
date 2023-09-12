@@ -1,11 +1,1 @@
-🤪 almost institutionalized 2008
-🤑 now 6 figs
-👧 dad
-💻 entrepreneur
-🤖 AI advocate
-🎨 artist
-🤣 comedian
-🔥 rapper
-🤯 mental health advocate
-😎 solid dude
-🕶
+Host of The Jonathan Caruso Show • Hire Me to Fix Your **IT • Producer • Data Janitor • AI Whisperer • Polymath • Renaissance Dude • The Fool 🃏
